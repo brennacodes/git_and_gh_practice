@@ -1,0 +1,1 @@
+My favorite vacation was when I went to Iceland. The people were so nice in Reykjavik, but I stayed in the middle of nowhere in a beautiful home with expansive views. The entire trip consisted of the most incredible scenery I've ever experienced in my life.  
